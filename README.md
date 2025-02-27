@@ -2,4 +2,8 @@
 
 ### 🔧 Mechatronics & Embedded Systems Engineer | 🐧 Linux Enthusiast  
 
-💻 Always hacking, always learning! Let’s build something awesome! 🚀  
+💻 Always learning, always building! 🚀  
+
+📖 **_"وَقُلْ رَبِّ زِدْنِي عِلْمًا"_** ✨  
+**_"And say, 'My Lord, increase me in knowledge.'"_**  
+**— Qur’an 20:114**
